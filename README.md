@@ -14,6 +14,7 @@ Our goal is to empower enthusiasts, tuners, and engineers in the BMW community b
 
 ### 1. **N20/N26 Bxx / N63T3 Coil Pack Holding Brackets**
 Designed for improved reliability and increase spark energy enabling stock plug gap at higher boost levels.
+**For the Plug N Play Coil Harnesses, please email [navardituned@gmail.com](mailto:navardituned@gmail.com):**
 
 ### 2. **N26/N20 Oil Pan Baffle**
 The **absolute best oil pan baffle** on the market for keeping N20 and N26 engines alive during spirited driving and track racing. 
